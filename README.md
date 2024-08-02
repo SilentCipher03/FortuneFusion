@@ -50,6 +50,24 @@ Streamlined the process of generating and sharing lucky numbers, improving overa
 
 
 
+https://github.com/user-attachments/assets/37735a45-a5f5-403b-9068-4fc1042b1b63
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
